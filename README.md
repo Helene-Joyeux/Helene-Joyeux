@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Helene-Joyeux
+- 👋 Bonjour, I’m @Helene-Joyeux
 - 👀 Je suis data analyst et je serai ravie de mettre mes compétences à votre service !
 - 🌱 Actuellement en fin de formation, je serai disponible à partir du 12 février 2024.
 - 💞️ Je cherche un CDI  en tant que Data analyst, business analyst
