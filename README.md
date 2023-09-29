@@ -3,7 +3,7 @@
 #### Vous trouverez ici quelques-uns des projets réalisés.
 #### Vous pouvez consulter mon CV sur linkedin.
 #### Actuellement en fin de formation, je serai disponible à partir du 2 janvier 2024 et je suis d'ores et déjà disponible pour vous rencontrer ! :)
-#### Vous pouvez me contacter via mon adresse mail joyeuxhel@gmail.com ou mon numéro de téléphone : 06 80 74 09 24
+
 
 
 <!---
