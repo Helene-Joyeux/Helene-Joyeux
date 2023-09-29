@@ -2,7 +2,7 @@
 #### Titulaire d'un master en communication et marketing, j'ai récemment développé mes compétences en analyse de données, un domaine passionnant !
 #### Vous trouverez ici quelques-uns des projets réalisés.
 #### Vous pouvez consulter mon CV sur linkedin.
-#### Actuellement en fin de formation, je serai disponible à partir du 2 janvier 2024 et je suis d'ores et déjà disponible pour vous rencontrer ! :)
+#### Actuellement en fin de formation, je suis d'ores et déjà disponible pour vous rencontrer ! :)
 
 
 
